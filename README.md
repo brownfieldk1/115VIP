@@ -17,7 +17,7 @@
 - 签到满230天：在满115天奖励的基础上，额外赠送1年VIP时长
 - 签到满345天：在满230天奖励的基础上，再额外赠送1年VIP时长
 
-上车链接：[https://v.115.com/618?f=union&share_code=a7c09b2f98fbca087ba250ca67f787c9#](https://v.115.com/618?f=union&share_code=a7c09b2f98fbca087ba250ca67f787c9#)
+上车链接：[https://v.115.com/618](https://v.115.com/618?f=union&share_code=a7c09b2f98fbca087ba250ca67f787c9#)
 
 ### 特别说明
 
