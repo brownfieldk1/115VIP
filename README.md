@@ -1,5 +1,6 @@
 # 有福同享，115签到免年费VIP活动 快来一起薅羊毛！
 
+![image](https://github.com/brownfieldk1/115VIP/assets/169995672/f6ca65ea-0afa-4137-8fad-3837f6ff860d)
 
 ## 活动奖励
 
@@ -39,7 +40,7 @@
 
 立即抢购：[拼多多直营店](https://v.115.com/618?f=union&share_code=a7c09b2f98fbca087ba250ca67f787c9#)
 
-![image](https://github.com/brownfieldk1/115VIP/assets/169995672/f6ca65ea-0afa-4137-8fad-3837f6ff860d)
+
 
 ### 温馨提示
 
